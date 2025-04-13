@@ -1,5 +1,16 @@
 ## Hi there 👋
 
+### Darclander the program man
+
+[github](https://github.com/darclander)
+
+### Kumole the
+
+[github](https://github.com/Kumole)
+
+### Gammel the music man
+[youtube](https://www.youtube.com/@gammel_music/)
+
 <!--
 
 **Here are some ideas to get you started:**
